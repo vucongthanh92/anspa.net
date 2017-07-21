@@ -1,1 +1,0 @@
-co gai den tu hom qua
